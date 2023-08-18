@@ -10,12 +10,7 @@ Fullstack Developer
 * 🤝  I'm open to collaborating on interesting projects
 * ⚡  I am super hero saving the world with one meme at a time
 
-### Skills
 
-
-<p align="left">
-ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON ICON
-</p>
 
 
 ### Socials
